@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Lotus88TM
+- 👨‍💻 Pasting in c++, c#, Python
+- 😎 Verry cool Guy
+- 📺 https://www.youtube.com/channel/UCcNAklvWtJ4fQS1ToU7lDog
